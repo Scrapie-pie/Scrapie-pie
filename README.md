@@ -59,7 +59,7 @@
 - Гитхаб: https://github.com/Scrapie-pie
 
 **Контакты:**
-- Телеграм: @Bochkarev_Sergeyy (предпочтительный способ связи)
-- Почта: bochkarev.sergeyy@yandex.ru
+- Телеграм: @Sergeyy_Bochkarev (предпочтительный способ связи)
+- Почта: sergeyy.bochkarev@yandex.ru
 
 С Уважением, Сергей Бочкарев.
